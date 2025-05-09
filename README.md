@@ -5,7 +5,7 @@
 - 📫 How to reach me ...mail:lucascasanove@yahoo.fr or 0033768657818
 - 😄 Pronouns: ... Lucas
 - ⚡ Fun fact: ... I speak four languages, I have a licence and I'm reinventing myself
-- CV: https://online.updf.com/index/share/fr-FR?shareId=a33aac59-49e1-4aba-bba6-1e932903f412
+- CV: https://www.cv.fr/d/5UKs8Enod94GNFkS3bPsCe/view
 
 <!---
 superchoco3000/superchoco3000 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
